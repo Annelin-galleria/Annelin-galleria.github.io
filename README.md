@@ -1,1 +1,0 @@
-# Annelin-galleria.github.io
